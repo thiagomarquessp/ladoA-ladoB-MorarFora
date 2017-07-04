@@ -7,4 +7,5 @@ Bem, vou dizer que essa foi a decisão mais difícil que minha esposa e eu tomam
 Outro detalhe bem interessante para quem é da área de tecnologia é que o Linkedin é uma excelente ferramenta para busca de emprego, pois os recrutadores daqui da europa realmente utilizam, são cortezes e se o seu perfil atende a alguma demanda, com certeza será chamado para uma entrevista.
 
 <p align="justify">
+
 Calhou de ser Lisboa o destino que nos deu a oportunidade de recomeçar, que na questão de adaptação seria melhor... É ... falaremos disso. Mas vamos então pra questão do [processo de visto](https://github.com/thiagomarquessp/ladoA-ladoB-MorarFora/blob/master/processo-de-visto.md).
