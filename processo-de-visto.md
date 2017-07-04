@@ -23,5 +23,5 @@ Obs: Criar uma conta no site do consulado.
 11) Comprovante de endereço no Brasil do solicitante do Visto;
 12) Declaração informando que você sabe que não deve ir a PT sem o devido visto, você pega no [site](http://consuladoportugalsp.org.br/servicos/declaracao_paravistos_expulsao.htm) do consulado mesmo. E preencha e envie tudo junto, porque senão seu processo vai ficar indo e voltando;
 13) Declaracação de aceite que quer receber o Visto pelos Correios (eu nunca recomendo), mas o [link](http://consuladoportugalsp.org.br/wp-content/uploads/2014/08/DECLARA%C3%87%C3%83OENVIO-PASSAPORTE-VISTOS.doc) é esse;
-14) Preencha o requerimento nesse [link:](http://consuladoportugalsp.org.br/intra-manager/service?f=visto-estada-temporaria);
+14) Preencha o requerimento nesse [link](http://consuladoportugalsp.org.br/intra-manager/service?f=visto-estada-temporaria);
 15) Todos os documentos devem ser enviados por CORREIOS, SEDEX, Motoboy, todos devem estar em um envelope devidamente preenchido, MAS, eu fui no próprio consulado e deixei em mãos (na recepção) e vida que segue. Prefiro eu mesmo levar do que ter que levar 3 dias sei lá.
