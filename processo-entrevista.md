@@ -1,4 +1,4 @@
-#Vamos agora a parte da entrevista:
+# Vamos agora a parte da entrevista:
 
 Logo após criar a conta no consulado, pagar a taxa, enviar a documentação, o consulado te chama para uma primeira entrevista (vou chamar de triagem), ou seja, todos esses documentos que você tem ai acima, leve-os por precaução, por exemplo, a carteira de trabalho, pois caso você tenha um tecnólogo não reconhecido em PT, sua carteira de trabalho vai servir para comprovar que você pode atuar na área em que deseja porque você tem experiência comprovada. No meu caso foi exatamente isso, como eu tenho quase 10 anos de experiência como QA, foi fácil conseguir através da carteira de trabalho. O mesmo se aplica a qualquer profissão, principalmente profissões que estão em falta de profissionais aqui em Portugal, como é o caso de Engenheiros (que são extremamente respeitados aqui) ou até mesmo para áreas operacionais (acreditem, pintor aqui é raridade, e quando encontra, é extremamente caro).
 
