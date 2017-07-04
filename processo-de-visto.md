@@ -3,9 +3,11 @@
 
 Bem, essa é a maior dúvida que a maioria das pessoas tem, então vamos lá:
 
+<p align="justify">
 Antes de mais nada entenda que um Visto de Trabalho é TOTALMENTE diferente de um Visto de Residência e o principal motivo é que no Visto de trabalho, o país em questão (Europa e Estados Unidos eu sei que funciona assim) DEVE dar prioridade para quem é nativo, ou seja, não importa o quão bom você seja, se fala 3 ou 4 idiomas, se algum português (no exemplo para Portugal) aparecer querendo participar do processo seletivo, a empresa é obrigada a abrir as portas para ele, simples assim. Eu tive uma experiência dessa quando eu fui aprovado em um processo seletivo para Espanha e já havia mandado o contrato assinado, documentos e no momento em que iriam mandar os documentos para aprovação do Visto lá na Espanha, um espanhol com o perfil semelhante ao meu submeteu a vaga e a notícia veio logo em seguida "Infelizmente vamos ter que seguir com o fulano por conta da nossa legislação." e isso é muito comum.
 Então o que nesse caso vem sendo feito? Emitir um visto de residência faz mais sentido, pois nada mais é que um convite que te fazem para ir ao país morar, investir e também trabalhar, pois aqui em Portugal eles chamam inclusive de visto de investidor, um "tipo pj" e com esse visto a empresa pode encher de brasileiro, americano, russo, etc e não ter por exemplo ser obrigado a contratar um nativo por exemplo.
 
+<p align="justify">
 Bem, então vamos aos documentos necessários para emissão do visto D2 (Visto de Residência) ou Estada Temporária (Trabalho independente):
 
 Obs: Criar uma conta no site do consulado.
