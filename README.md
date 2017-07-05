@@ -12,6 +12,6 @@ Vou dividir em tópicos para facilitar a leitura.
 2. [O processo de Visto de Residência para Portugal](https://github.com/thiagomarquessp/ladoA-ladoB-MorarFora/blob/master/processo-de-visto.md)
 3. [Processo de entrevista](https://github.com/thiagomarquessp/ladoA-ladoB-MorarFora/blob/master/processo-entrevista.md)
 4. [Chegando em Lisboa, e aí?](https://github.com/thiagomarquessp/ladoA-ladoB-MorarFora/blob/master/cheguei-eagora.md)
-5. [Arrendamento em Lisboa - O que fazer e não fazer](http://arrendamento.md)
+5. [Arrendamento em Lisboa - O que fazer e não fazer](https://github.com/thiagomarquessp/ladoA-ladoB-MorarFora/blob/master/arrendamento-dicas.md)
 6. [Lado A - A parte romântica da história](http://ladoromantico.md)
 7. [Lado B - O que as pessoas geralmente não contam](http://oquenaotecontam.md)
