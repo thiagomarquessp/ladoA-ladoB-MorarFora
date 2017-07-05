@@ -13,3 +13,5 @@ Cabeça fresca, respostas dadas e ainda com o cônsul falando "Deseja receber em
 
 <p align="justify">
 Qual é o Bizu indo buscar? É simples, é a chance de você falar alguma porcaria que faça o cônsul mudar de idéia na hora, porque o visto nada mais é que um pedaço de papel que vai colado no seu passaporte e o gajo vai pegar esse papel na hora, colocar as informações na hora no sistema e por fim, colar no passaporte.
+
+Chegou até aqui com tudo certo, vamos então ver o que fazer quando chegarmos em Portugal [aqui.]
