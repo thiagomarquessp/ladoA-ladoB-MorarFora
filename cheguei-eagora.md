@@ -1,0 +1,11 @@
+# Agora que você pisou em solo Português, o que fazer?
+
+Bem, vamos considerar que a empresa não te da suporte algum e que te joga pros leões, temos que fazer algumas coisas de prioridade 0 e vou listar:
+
+1. No aeroporto, comprar um chip pré-pago, custa pouco e você geralmente tem uns 5GB de Dados e 500 minutos (considerando Vodafone);
+
+2. Tirar seu NIF (Número de Identificação Fiscal), vulgo CPF. Esse documento contém toda a sua vida e com ele você consegue realizar todas as demais obrigações (por exemplo, cartão de saúde, bilhete mensal de transporte, conta no banco, etc.). Para que tu possas ir retirar seu NIF, primeiro de tudo, vá até a empresa para que eles possam te dar uma declaração que eles vão ser seu **representante fiscal** e com essa carta você deve comparecer a alguma unidade das **FINANCAS**, com seu Passaporte com Visto, Declaração de representante fiscal, PB4, contrato de trabalho. Para dar uma dica, vá nas FINANCAS de **ALVALADE** porque o atendimento lá é mais humano e com pessoas muito mais legais. Para se entender, tem uma frase que eu gosto de invocar: **"Cada atendente é uma sentença."**, ou seja, você tem orgãos iguais para fazer a mesma coisa e depende do bom humor do atendente para fazer (Isso é sério), então seja cortez e educado.
+
+3. Nas estações de metro, pegue um formulário para obter o bilhete mensal de transporte, leve para casa e preencha com atenção e escolha a opção de emergência, que fica pronto em dois dias, leve uma foto 3x4 em Marques do Pombal e conclua o pedido e depois de 2 dias você torna a buscar me Marques do Pombal para retirar e também pagar pelo mês que vai utilizar. Os transportes aqui são dividos em Metro (metrô), Comboio (trem), Autocarro (ônibus). Tu pode ver [aqui](http://www.metrolisboa.pt/informacao/viajar-no-metro/titulos-de-transporte-e-tarifas/) sobre preços. Nesse caso não vale a pena dar alguma dica, porque depende do lugar onde você vai morar. No meu caso, eu moro na linha de Sintra de Comboio, então eu pago um pouco mais caro porque eu pego Comboio e Metro, mas quem mora em Lisboa não precisa de comboio, então o Metro sai mais em conta.
+
+Com tudo isso, já podemos ver como [arrendar um imóvel]().
