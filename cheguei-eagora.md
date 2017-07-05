@@ -8,4 +8,4 @@ Bem, vamos considerar que a empresa não te da suporte algum e que te joga pros 
 
 3. Nas estações de metro, pegue um formulário para obter o bilhete mensal de transporte, leve para casa e preencha com atenção e escolha a opção de emergência, que fica pronto em dois dias, leve uma foto 3x4 em Marques do Pombal e conclua o pedido e depois de 2 dias você torna a buscar me Marques do Pombal para retirar e também pagar pelo mês que vai utilizar. Os transportes aqui são dividos em Metro (metrô), Comboio (trem), Autocarro (ônibus). Tu pode ver [aqui](http://www.metrolisboa.pt/informacao/viajar-no-metro/titulos-de-transporte-e-tarifas/) sobre preços. Nesse caso não vale a pena dar alguma dica, porque depende do lugar onde você vai morar. No meu caso, eu moro na linha de Sintra de Comboio, então eu pago um pouco mais caro porque eu pego Comboio e Metro, mas quem mora em Lisboa não precisa de comboio, então o Metro sai mais em conta.
 
-Com tudo isso, já podemos ver como [arrendar um imóvel]().
+Com tudo isso, já podemos ver como [arrendar um imóvel](https://github.com/thiagomarquessp/ladoA-ladoB-MorarFora/blob/master/arrendamento-dicas.md).
