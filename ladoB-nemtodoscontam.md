@@ -25,3 +25,15 @@ Isso é algo engraçado aqui, vc nunca sabe como ta o humor de um tuga até fala
 Essa situação me deixou xaropado porque como o MESMO orgão pra fazer as mesmas coisas tem tratamentos totalmente diferentes??? Por isso a frase "Cada atendente uma sentença", ou seja, se precisar fazer algo comum (que pode ser feito em vários lugares) e receber uma negativa, vai em outro que você vai ter sorte.
 
 Uma coisa bem estranha é que ninguém pede "com licença" por aqui, simplesmente empurram rsrs.
+
+# A saudade
+
+Puta que pariu, como a saudade é grande de estar com a família reunida, ou simplesmente de poder compartilhar boas risadas de tudo, inclusive das coisas ruins de Política que tem do Brasil. Graças a tecnologia essa saudade é encurtada pelas redes sociais, mas é vida que segue, de repente pra quem nem curte estar tanto com amigos e família essa parte é sem sentido.
+
+# Até breve...
+
+Bom, queria agradecer a todos que até aqui leram e dizer que por mais que o Lado B seja bem chato de se viver, a experiência faz você amadurecer e isso não tem preço, e indo além, infelizmente eu não ia conseguir ajudar a mudar o Brasil e por isso eu sai. Eu sinto uma imensa saudade do Brasil, das pessoas, mas se resume a isso, eu queria muito poder falar que eu sinto saudade de ir jantar com minha esposa e voltar as 3 da manhã pra minha casa que fica no Morumbi sabe, queria muito poder sentir saudade de não ter que pegar um transporte público lotado e ter que ir na porta ou ser assediado, sentir saudade de chegar num PS e ser prontamente atendido, mas sei que isso não será possível daqui a 10, 20, 50 anos. Enquanto brasileiro e cidadão, vez ou outra posso me dar ao luxo de ir visitar a galera e a família.
+
+Vou alimentar esse repositório com dicas diversas ainda, com mercado de trabalho, principalmente em TI.
+
+Um abraço.
