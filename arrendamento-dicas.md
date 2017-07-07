@@ -86,4 +86,4 @@ Essa é a redenção, quando ele realmente aceita arrendar pra ti, realiza o con
 
 Dica: Daqui pra frente todo contato é direto com o senhorio, desde pequenas avarias até reforma do apto caso tu queira e negocie para abater do valor do arrendamento.
 
-Agora que tu chegou até aqui, vamos entender um pouco do dois lados de se morar fora, e no meu caso, portugal. Primeiro vou falar do [Lado A]().
+Agora que tu chegou até aqui, vamos entender um pouco do dois lados de se morar fora, e no meu caso, portugal. Primeiro vou falar do [Lado A](https://github.com/thiagomarquessp/ladoA-ladoB-MorarFora/blob/master/ladoA-romantismo.md).
