@@ -46,7 +46,7 @@ Após marcar a visitação no apto, vá bem arrumado, evite deixar a mostra as t
 
 Dado que você foi até o apto e gostou muito, essa é a hora que você tem para perguntar as condições para o corretor, como por exemplo, mensalidade, quantas rendas antecipadas, se precisa ou não de fiador, assim como detalhes básicos, como reformas, mobília etc.
 
-Dica.: Na hora que você terminou a visita, e gostou, dado que você já sabe quanto custa a renda, veja o quanto você consegue oferecer a mais para "segurar" o apto e outro detalhe, anote TODAS as informações com relação ao que é necessário do fiador, quais são os documentos. Pacientemente você chega em casa e escreve sua propost, se tiver junto com o fiador, vai ser mais fácil o envio do email, que vai ficar mais ou menos assim:
+Dica: Na hora que você terminou a visita, e gostou, dado que você já sabe quanto custa a renda, veja o quanto você consegue oferecer a mais para "segurar" o apto e outro detalhe, anote TODAS as informações com relação ao que é necessário do fiador, quais são os documentos. Pacientemente você chega em casa e escreve sua propost, se tiver junto com o fiador, vai ser mais fácil o envio do email, que vai ficar mais ou menos assim:
 
 *Prezado(a) Senhor(a) Fulano(a) de Tal.
 
@@ -63,3 +63,27 @@ Morada:
 Com meus melhores cumprimentos.
 
 Thiago Pereira*
+
+# 3. O corretor vai apresentar a proposta para o senhorio
+
+Essa é a parte que eu considero mais chata da história toda do arrendamento, pois quem decide no final das contas é o senhorio, então tem que contar com a boa vontade dele no dia, se a lua ta na direção certa, porque ele vai receber de uma vez um montão de proposta iguais, melhores e piores que a sua, o que não quer dizer que a sua seja descartada ou aceita, ou seja, ou grande DEPENDE. Eu já cheguei a oferecer 6 rendas antecipadas e o senhorio não quis arrendar para mim.
+
+Dica: Quando sua proposta é "aceita", o apto fica reservado para você até concretizar o negócio, mas não fica reservado apenas para você, fica reservado para todos os que enviaram uma proposta cujo o senhorio venha a ter gostado. Então quando o corretor falar que ta reservado pra ti, NÃO deixe de continuar procurando apto como eu fiz e quase fiquei sem onde ficar, pois o apto estava reservado no Domingo e teoricamente achei que tudo iria dar certo, mais dois dias estaria com apto (uhul), o airbnb não teria que ser renovado, gastaria menos, mundo ideal. Cancelei todas as visitas agendadas em outros aptos, tava felizão e então veio segunda, terça, quarta, quinta e na sexta feira a corretora me liga dizendo que o senhorio não queria mais contar com a minha proposta e achou por bem continuar com um português O.o. A M é que a partir de sábado eu não teria mais casa pra ficar, mas no fim contornei no airbnb e continuei por mais uns dias. Mas o que eu aprendi é que mesmo te prometendo que ta reservado, continue indo em todos e não se sinta mal em desmarcar visitas, porque é absolutamente normal, o tempo todo é assim.
+
+# 4. O senhorio pensa (e pensa muito)
+
+Sim, ele pensa ..... e pensa .... e pensa .... E como no passo 3, tudo pode acontecer. Ele gostar, reservar, e no meio do caminho vir um tuga e a preferência vai ser para um conterrâneo.
+
+# 5. Se der certo, o senhorio vai te conhecer
+
+Sei que nós brasileiros, no ápice de achar que sabe de tudo, que estamos no auge da geração Y, que dane-se o mundo, essas são minhas regras coloque na cabeça que tu não vai ter o colo da mamãe fora do Brasil, e que sim, você é julgado o tempo inteiro porque o ser humano é um lixo.
+
+Dica: Dado o disclaimer, quando você for conhecer o senhorio, vá bem arrumado, não to falando pra ir de social, mas bem arrumado, com calça jeans, um sapatenis, uma camisa polo sabe, se realmente não for possível esconder as tatugens ok, mas se der, esconda, para que isso não seja fator determinante em aceitarem ou não. Eu fui julgado aqui 2 x por ter ido de bermuda e camiseta e mochila nas costas. Para eles não da crédito, me acharam mais um molecão atrás de zuera, passei a ir de calça, camisa e o tratamento é infinitamente melhor. É uma regra??? NÃO ... mas dado que tem pessoas que passam por isso, porque ficar dando sorte pro azar. MAS, se tu achar que deve bater no peito e querer fora dos seus domínios impor o pensamento alheio, tenta a sorte =).
+
+# 6. Se ele for com a sua cara, ele arrenda pra ti o apto
+
+Essa é a redenção, quando ele realmente aceita arrendar pra ti, realiza o contrato e vida que segue.
+
+Dica: Daqui pra frente todo contato é direto com o senhorio, desde pequenas avarias até reforma do apto caso tu queira e negocie para abater do valor do arrendamento.
+
+Agora que tu chegou até aqui, vamos entender um pouco do dois lados de se morar fora, e no meu caso, portugal. Primeiro vou falar do [Lado A]().
