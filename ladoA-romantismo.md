@@ -23,3 +23,5 @@ Saúde pública é sensacional, com o PB4 você consegue ser atendido pelo siste
 # Pequeno Almoço (café da manhã)
 
 Vou te falar que o pequeno almoço, vulgo café da manhã é um espetáculo a parte, pois o preço é muito baixo, coisa de 2,50 de euro você consegue comer um salgado, doce, suco de laranja e um cafezinho.
+
+Esse vai ser um post que vai ser sempre alimentado, mas vamos pro [Lado B]().
