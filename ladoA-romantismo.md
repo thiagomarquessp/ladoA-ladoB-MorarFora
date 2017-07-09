@@ -8,6 +8,33 @@ Outro fator interessante é quando você chega e o "sentido de alerta" ta sempre
 
 Outra coisa legal de morar na europa é que você pode viajar entre países da União Europeia e Inglaterra com preços muito bons e muito baratos, assim como pegar o trem e chegar em Madrid por preços bem atraentes, isso é muito bom porque te da uma condição de conhecer outros países e pagando pouco (sonho isso), ou então se tu quer ir sei lá, pra Russia, é barato, pro Canadá, é barato, pros Estados Unidos, é barato, MAS pra ir pro Brasil ou para algum país da America Latina é um absurdo de caro, MEU DEUS.
 
+Outro ponto positivo, é a sinceridade dos tugas, eles realmente são sinceros e falam na lata mesmo o que pensam, fora o fato deles terem realmente palavra, se falam que vão te ligar as 10:06 eles realmente ligam. 
+
+# Turismo
+
+Essa é uma parte fundamental para quem mora em Portugal, e no meu caso, em Lisboa, pois aqui tem lugar pra burro pra visitar, lugares extremamente lindos, e não apenas aqueles que você coloca no google perguntando o que fazer em Portugal. Vou listar alguns lugares que realmente vale a pena conhecer quando vir:
+
+Em Sintra:
+
+1. [Palácio Nacional da Pena;](http://bit.ly/2tZxFk6)
+2. [Castelo dos Mouros;](http://bit.ly/2tuWQu2)
+3. [Quinta da Regaleira;](http://bit.ly/2sCMPIj)
+4. [Palácio Nacional de Sintra;](http://bit.ly/2uEx7xO)
+5. [Palácio de Monserrate.](http://bit.ly/2u5Bd4X)
+
+Só Sintra já vale as férias.
+
+Se for verão, nós temos:
+
+1. [Praia de São Pedro Estoril;](http://bit.ly/2sT6Bno)
+2. [Praia do Tamariz;](http://bit.ly/2tZutVw)
+3. [Portimão;](http://bit.ly/2sDeuZI)
+4. [Algarve.](http://bit.ly/2sTTWk5)
+
+Quer jogar, tem o [casino de estoril.](http://bit.ly/2t0KMNC)
+
+As vezes pensamos, "Será que alguém acorda querendo conhecer Portugal?", se souberem desse pontos turísticos, creio que sim! A país é fixe demais.
+
 # Culinária
 
 A comida aqui é boa, principalmente o peixe e frutos do mar. Eu vim da capital gastronômica do mundo (São Paulo), então meu sentimento da culinária em Portugal é "boa ponto", nada de extraordinário.

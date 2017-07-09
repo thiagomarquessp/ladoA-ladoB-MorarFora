@@ -26,6 +26,26 @@ Essa situação me deixou xaropado porque como o MESMO orgão pra fazer as mesma
 
 Uma coisa bem estranha é que ninguém pede "com licença" por aqui, simplesmente empurram rsrs.
 
+Algumas situações que ficam evidente quando você mora em Portugal é a mudança no tratamento das pessoas quando você fala que trabalha aqui e ainda se trabalha numa empresa grande, como no meu caso. A mudança é perceptível, enquanto todos acham que você é turista, que está vindo gastar horrores, etc a galera da risada, te da dicas, basta falar que você está aqui porque sei lá, sua empresa o mandou do BR pra PT, ou realmente conseguiu emprego de forma legal, o tratamento REALMENTE muda. Minha esposa e eu sentimos isso visitando Sintra (que por sinal vale muito a pena quando virem), pegamos um Tuk Tuk para subir até um palácio no cu do mundo da montanha, e enquanto isso, a guia ia toda alegre e contente falando e bla bla bla, aí vem a pergunta "Quanto tempo de férias??" e você responde que mora aqui e que trabalha na empresa XPTO, pronto, a mulher fechou a cara e nos últimos 5 minutos mal falou um A pra gente, chegamos no destino, pegou o dinheiro, deu o troco e se não fossemos nós a dar tchau, ela não iria dar. No Taxi também já tive experiência assim, então fiz um teste, falei que eu era cidadão portugues, com passaporte e em vez de piorar, teve até elogio do meu sobrenome (Pereira), que era uma família tradicional e etc e tals.
+
+Mas na sua maioria, como eu falei, o povo é bem legal!
+
+# Sonho europeu não existe
+
+Para aqueles que almejam a europa para realizar o "sonho americano" invertido (sonho europeu), achando que vai ser rico porque ganha em euro vou te dizer que isso será motivo de frustração se tu optar por vir a Portugal ou para algum país da União Europeia que não seja Londres (que nem faz parte mais). Portugal se ganha bem menos que os outros países (ainda vou escrever sobre salário da nossa área principalmente), e por mais que você ganhe em Euro, você vai gastar em Euro, então aquela visão de que eu vou sair do Brasil e vir pra Portugal "juntar uma grana" não existe, ou seja, quando vieres a Portugal, certifique que você deixou pra trás sua vida no Brasil, porque tu não vai conseguir manter duas vidas ganhando o que se ganha em PT. No nosso caso, deixamos pra trás tudo, vendemos tudo, apto, carro, etc porque sabemos que nossa realidade agora é estar aqui. Diferente dos EUA que lá você consegue guardar uma grana pra mandar pro BR e pagar um apto saca, mesmo alugando lá.
+
+Outro detalhe são os impostos, mas nada comparado ao Brasil, mas tu paga bastante impostos aqui e ai de ti se não pagar. Então quando vieres morar, pensa que o Leão aqui é igual um agiota, só que mais bravo rsrs, então jamais deixe de pagar seus impostos certinho aqui.
+
+Dica.: Quando alguém que vvocê conheça vier com aquela frase mágica "Ah, mas você mora na Europa, ganha bem.", apenas sorria e acene, não vale o desgaste.
+
+# Tem pobre na rua sim
+
+Para quem pensa que aqui só tem rico se engana, tem pessoas em situação de rua, pedindo dinheiro no metro e no comboio, com placas que tem acima de 50 anos e desempregado, tanto que as vezes da até uma bad porque rola as vezes aquele sentimento de que você ta vindo pra "tomar emprego de outra pessoa", mas não deixe isso te sobrecarregar.
+
+# Dinheiro
+
+Notas de 100, 50 esquece ... dificilmente será aceita aqui, porque se trata de muito dinheiro, então acostume-se a andar com notas baixas (10 e 20). Vou falar disso em um tópico sobre dicas diversas.
+
 # A saudade
 
 Puta que pariu, como a saudade é grande de estar com a família reunida, ou simplesmente de poder compartilhar boas risadas de tudo, inclusive das coisas ruins de Política que tem do Brasil. Graças a tecnologia essa saudade é encurtada pelas redes sociais, mas é vida que segue, de repente pra quem nem curte estar tanto com amigos e família essa parte é sem sentido.
