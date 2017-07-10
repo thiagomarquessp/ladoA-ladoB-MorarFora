@@ -15,4 +15,4 @@ Vou dividir em tópicos para facilitar a leitura.
 5. [Arrendamento em Lisboa - O que fazer e não fazer](https://github.com/thiagomarquessp/ladoA-ladoB-MorarFora/blob/master/arrendamento-dicas.md)
 6. [Lado A - A parte romântica da história](https://github.com/thiagomarquessp/ladoA-ladoB-MorarFora/blob/master/ladoA-romantismo.md)
 7. [Lado B - O que as pessoas geralmente não contam](https://github.com/thiagomarquessp/ladoA-ladoB-MorarFora/blob/master/ladoB-nemtodoscontam.md)
-8. [Mercado de Testes em Portugal](WIP)
+8. [Mercado de Testes em Portugal](https://github.com/thiagomarquessp/ladoA-ladoB-MorarFora/blob/master/mercado-qa.md)
