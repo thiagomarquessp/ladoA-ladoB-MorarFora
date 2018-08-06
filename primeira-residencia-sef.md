@@ -20,16 +20,19 @@ Esse primeiro caso é um pouco mais chato pois temos que ir atrás de algumas co
 8. Eu levei também o certificado de antecedentes criminais do Brasil, mas não é obrigatório.
 
 <p align="justify">
+  
 A dica é ir em uma loja do cidadão ao invés de ir direto na Segurança Social, minha sugestão é ir na Loja do Cidadão em Odivelas, dentro do [STRADA Outlet](http://www.stradaoutlet.pt/lojas/servicos/loja-do-cidadao/-/8/1322) e recomendo chegar lá umas 6:00 AM porque é lotado e tem número definido de senhas, o problema é que até as 7:00 ficamos lá fora, e depois entramos no shopping, e depois as 9:00 a loja se abre. Sim, eu sei que é um saco, mas quem nunca ficou um tempão na fila do INSS? 
 
 Depois de cerca de 15 dias o número da sua Segurança Social chega em casa.
 
 ### Segundo passo - Agendar (agora de forma online)
 <p align="justify">
+  
 Quando eu cheguei em PT ainda era possível ligar ao SEF e agendar, porém agora tudo deve ser feito de forma online e para isso vamos ter que ter em mãos o número da segurança social e depois vir [aqui](https://www.sef.pt/pt/Pages/pre-marcacao-online.aspx) para realizar a pré-marcação e depois de realizar o cadastro no SEF, vão pedir o número da SS e depois pronto. Vai receber um email confirmando o cadastro e que logo mais vão entrar em contato para agendar a data de ida ao SEF.
 
 ### Terceiro passo - Reunir os documentos
 <p align="justify">
+  
 Digamos que você já recebeu o email e já agendou a data, é hora de reunir os documentos necessários para a primeira residência. A lista oficial está [no portal do SEF mesmo](http://www.imigrante.pt/PagesPT/DocumentosNecessarios/ConcessaoAR/04Art89N1.aspx). Geralmente a lista oficial atende, mas como eu disse, cada atendente uma sentença, então eu levei: 
 
 1. Cópia do Passaporte do respetivo visto caso tenha vindo com o visto de Residência do Brasil. Caso não seja esse o caso, apenas a cópia do Passaporte;
@@ -44,6 +47,7 @@ Digamos que você já recebeu o email e já agendou a data, é hora de reunir os
 
 ### Quarto passo - Ir até o SEF
 <p align="justify">
+
 Agora é realmente respirar e ir até o SEF, vá com bom ânimo, com todos os documentos listado originais e cópias, chegue no horário, vá bem arrumado (é sério), e fale o menos possível gírias e palavrões. Em boa parte dos casos quando vão com sua cara, o processo sai rápido. O ápice é quando você já recebe o valor para pagar (na época que eu tirei, foi por volta de 45 euros). Uma dica de ouro é INFORME e CONFIRME o seu endereço completo, porque pode acontecer como aconteceu comigo, que esqueceram de colocar o número da minha casa e tive que ir até muito longe para buscar meu cartão de residência. Mas pronto, foi para eu aprender porqeu eu também poderia ter conferido todo o endereço.
 
 Depois é só esperar chegar em casa =).
