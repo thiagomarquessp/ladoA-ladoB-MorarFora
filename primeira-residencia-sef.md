@@ -15,7 +15,7 @@ Esse primeiro caso é um pouco mais chato pois temos que ir atrás de algumas co
 3. Carta de abertura das FINANCAS (DEVE SER A CARTA QUE RECEBEMOS EM CASA) e não adianta chegar com a declaração do site (que diz a mesma coisa) que vão te fazer voltar pra casa;
 4. Passaporte (caso tenha o VISTO de Residência, também  é necessário uma cópia dele);
 5. Declaração da Junta de Freguesia OU uma conta de água ou energia no seu nome;
-6. [Document preenchido para dar entrada](http://www.seg-social.pt/documents/10152/38806/RV_1006_DGSS/d40ab4c2-9080-4bf9-a8ae-a772b43edc2b);
+6. [Documento preenchido para dar entrada](http://www.seg-social.pt/documents/10152/38806/RV_1006_DGSS/d40ab4c2-9080-4bf9-a8ae-a772b43edc2b);
 7. Cópia do NIF;
 8. Eu levei também o certificado de antecedentes criminais do Brasil, mas não é obrigatório.
 
