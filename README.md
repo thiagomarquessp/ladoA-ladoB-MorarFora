@@ -16,3 +16,4 @@ Vou dividir em tópicos para facilitar a leitura.
 6. [Lado A - A parte romântica da história](https://github.com/thiagomarquessp/ladoA-ladoB-MorarFora/blob/master/ladoA-romantismo.md)
 7. [Lado B - O que as pessoas geralmente não contam](https://github.com/thiagomarquessp/ladoA-ladoB-MorarFora/blob/master/ladoB-nemtodoscontam.md)
 8. [Mercado de Testes em Portugal](https://github.com/thiagomarquessp/ladoA-ladoB-MorarFora/blob/master/mercado-qa.md)
+9. [Primeira Residência - Primeira ida ao SEF](https://github.com/thiagomarquessp/ladoA-ladoB-MorarFora/blob/master/primeira-residencia-sef.md)
